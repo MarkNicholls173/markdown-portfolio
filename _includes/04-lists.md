@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Lotro
+2. Batman
+3. Witcher 3
